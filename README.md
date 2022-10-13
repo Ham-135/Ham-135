@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Ham135
+- 👀 I’m interested in Developing Scripts
+- 🌱 I’m currently learning RLua
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me: Ham135#6306
+- Cringe Profile: true
